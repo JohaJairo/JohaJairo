@@ -1,6 +1,5 @@
 👋 Hi, I’m Piotr
 
-👽 http://uxjobs.club owner
 🎨 product designer
 👴 young dad
 
